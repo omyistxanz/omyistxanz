@@ -9,3 +9,10 @@ i love being silly!!
 im usually quiet ! but i also vent randomly if u dont want me to just say NO! bc i dont mean to!!😛
 mie and nyra are so silly nyra is rot btw!! 
 nyrah is my comfort!! im usually on during week days during school bc ive been grounded!!🤟
+
+milas note: im a fart 
+HELP?!
+
+carlas note: im moving and ill miss you :((((
+
+YAYYYYY SHES FINNALY MOVING!!!!!!
