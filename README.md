@@ -15,3 +15,7 @@ ________________________________________________________________________________
  frrind notes!!
 milas note: im a fart 
 stan:HELP?!
+----------------------------------------
+spotify1! 
+[
+](https://open.spotify.com/user/31eyemml2wjvcgtrfferkcyatfky?si=04250801baae476c)
