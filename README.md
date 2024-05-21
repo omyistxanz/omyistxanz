@@ -4,7 +4,7 @@ ___________________________________
  IM CONFUSED YET ALSO TERRAFIED
 i cant do the photos thats too pro haker for me
 _________________________________________________
-i love being silly!!
+i love being silly!! i change my pfp alot and i usualy talk on commits now sicne pt got banned!!
 _______________________________
 im usually quiet ! but i also vent randomly if u dont want me to just say NO! bc i dont mean to!!😛
 mie and nyra are so silly nyra is rot btw!! 
