@@ -12,7 +12,7 @@
 
 <div align="center">
 i love being silly!! </br>i change my pfp alot and i usualy talk on commits now since pt got banned!! </br> im usually quiet ! </br> i also vent randomly if u dont want me to just say NO! bc i dont mean to!!😛</br>
-mie and nyra are so silly (nyra is rot btw!!) </br> nyrah is my comfort!! </br>im usually on during week days during school bc ive been grounded!!🤟 </br> kins!: stan, mARSH, fyodor, dazai, chuuya, uhh... crona, ranpo, tecchow and more !i offgor </br> i have multiple styles on pt!! </br>fyi i try my hardest not to get inspo >_<
+mie and nyra are so silly (nyra is rot btw!!) </br> nyrah is my comfort!! </br>im usually on during week days during school bc ive been grounded!!🤟 i get out of achool at 2:31 my time </br> kins!: stan, mARSH, fyodor, dazai, chuuya, uhh... crona, ranpo, tecchow and more !i offgor </br> i have multiple styles on pt!! </br>fyi i try my hardest not to get inspo >_<
 </div>
 
 </br>
