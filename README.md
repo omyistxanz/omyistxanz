@@ -26,6 +26,5 @@ art rev!!
 ![image](https://github.com/omyistxanz/omyistxanz/assets/148891914/b757a8c0-7a3a-4c76-b95a-afb130d6aa54)
 
 me 
-<img src="https://image.tensorartassets.com/posts/images/685455816978910657/e0a9c87d-59b0-4aae-b2c4-98f70afe0ee7.jpg" alt="Crona / Soul Eater - v1.0 | Tensor.Art"/>![image](https://github.com/omyistxanz/omyistxanz/assets/148891914/19d6d8d0-3c5e-44b7-a499-ed2d883d31b3)
+ ![image](https://github.com/omyistxanz/omyistxanz/assets/148891914/19d6d8d0-3c5e-44b7-a499-ed2d883d31b3)
 
-didnt mean 2 put two bt 
