@@ -19,8 +19,8 @@ mie and nyra are so silly (nyra is rot btw!!) </br> nyrah is my comfort!! </br>i
 <div align="center">
  notes from friends ^_^ </br>
  milas note: im a fart </br> stan: HELP?! </br>
- rot (nyra)'s note: crona after being grounded for a year and banned from ponytown... bro has her own villain origin story thats wild
- mie's note: tell Stan he’s sigma
+ rot (nyra)'s note: crona after being grounded for a year and banned from ponytown... bro has her own villain origin story thats wild </br>
+ mie's note: tell Stan he’s sigma </br>
  rot's note: mie. on SKIBIDI ttyou need to STOP THIS BEHAVIOUR NOW
 </div>
 
