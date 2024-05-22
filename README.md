@@ -33,3 +33,4 @@ mie and nyra are so silly (nyra is rot btw!!) </br> nyrah is my comfort!! </br>i
 
 
 hurriedly reformatted by rot ^_^ sorry if it looks a lil silly (ill make u a rentry someday promise)
+CRYING SO FKIMHG LOUD RN NYRA UR SO SWEET HELPP TELL ME IF U EVER NEED HELP TOO!!(stan/crona btw>v0)
