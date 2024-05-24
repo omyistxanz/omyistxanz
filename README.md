@@ -27,9 +27,7 @@ mie and nyra are so silly (nyra is rot btw!!) </br> nyrah is my comfort!! </br>i
 </br>
 <div align="center">
  art rev!! 
- 
- ![image](https://github.com/omyistxanz/omyistxanz/assets/148891914/b757a8c0-7a3a-4c76-b95a-afb130d6aa54)
-</div>
+ ![IMG_20240524_075036](https://github.com/omyistxanz/omyistxanz/assets/148891914/dae168e7-5a69-4fae-8723-e733355fdb34)
 
 
 hurriedly reformatted by rot ^_^ sorry if it looks a lil silly (ill make u a rentry someday promise)
