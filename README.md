@@ -8,7 +8,7 @@
 
  $\textit{stan}$ or   $\textit{crona}$ </br>
  [prns](https://en.pronouns.page/@cronazone)
-</>
+</
 </div>
 
 </br>
