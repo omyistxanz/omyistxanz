@@ -18,5 +18,6 @@
  rot (nyra)'s note: crona after being grounded for a year and banned from ponytown... bro has her own villain origin story thats wild </br>
  mie's note: tell Stan he’s sigma </br>
  rot's note: mie. on SKIBIDI ttyou need to STOP THIS BEHAVIOUR NOW
+ 
 hurriedly reformatted by rot ^_^ sorry if it looks a lil silly (ill make u a rentry someday promise)
 
