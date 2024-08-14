@@ -6,7 +6,7 @@
 
 <div align="center">
 
- $\textit{stan}$ or   $\textit{crona}$ </br>
+ѕтαη or ᥴ᥅ꪮꪀꪖ </br>
  [prns](https://en.pronouns.page/@cronazone)
 </
 </div>
