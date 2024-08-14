@@ -5,7 +5,6 @@ div align="center">
 </div>
 
 <div align="center">
-        †
  ѕтαη or ᥴ᥅ꪮꪀꪖ </br>
  [prns](https://en.pronouns.page/@cronazone)
 </div>
