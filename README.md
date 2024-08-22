@@ -5,7 +5,7 @@
 <div align="center">
  ѕтαη or ᥴ᥅ꪮꪀꪖ </br>
 
-(what am i doing... i cant undertsand)
+(im thinking things i shouldnt, but your the only one who can help me pull through this pain.)
 
 
 im a little on the unstable side atm ;3 
