@@ -20,4 +20,4 @@ nako tysm! my lord and savior
  
 (ill make u a rentry someday promise)nako
 [
-](https://omyizxstxanzz.straw.page)
+<img src="blob:chrome-untrusted://media-app/b286d1db-ebe9-4ecf-a19c-a4c695316d4b" alt="666fe098-db83-4b7f-b34d-38c6fb299cb6.jpeg"/>![image](https://github.com/user-attachments/assets/cf19564f-6ac1-434d-bb6f-1beff53e3f88)
