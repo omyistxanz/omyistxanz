@@ -19,5 +19,5 @@ nako tysm! my lord and savior
  rot's note: mie. on SKIBIDI ttyou need to STOP THIS BEHAVIOUR NOW
  
 (ill make u a rentry someday promise)nako
-[
-<img src="blob:chrome-untrusted://media-app/b286d1db-ebe9-4ecf-a19c-a4c695316d4b"/>![image](https://github.com/user-attachments/assets/cf19564f-6ac1-434d-bb6f-1beff53e3f88)
+
+<img src="blob:chrome-untrusted://media-app/5e264bc5-3c4b-4d9d-81ba-13a532d8f079" alt=""/>![image](https://github.com/user-attachments/assets/726439f1-d27e-4247-9384-b1fa359c14d9)
