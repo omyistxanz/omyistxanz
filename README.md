@@ -17,4 +17,4 @@ nako tysm! my lord and savior
  
 (ill make u a rentry someday promise)nako
 
-<img src="https://i.pinimg.com/236x/44/2f/f3/442ff35f1fca62f3c1fdb02eccd51937.jpg" alt="Authentic DesignWith attention to detail, this plush toy accurately captures the appearance each character from Hazbin-Hotel, According to hazbin-hotel design. Suitable for ScenesCars, sofas, beds, offices, coffee shops, bookstores, hotels, clubs, parties, etc;, can also be given to friends and fans; When you are in a bad mood, you can hit and pressure the plush pillow; The cute animal pillow will help you reduce the pressure of work. Multi-Purpose Occasion: This Hazbin-Hotel plush toy is a grea"/>![image](https://github.com/user-attachments/assets/284d1617-a74a-43ea-acdd-911468e77c55)
+<img src="blob:chrome-untrusted://media-app/9b3c5237-9ed5-4107-8367-97941dc191f7" alt="us.jpg"/>![image](https://github.com/user-attachments/assets/78ba6c4e-0b05-42f2-935d-1319ca4c5d59)
