@@ -2,12 +2,9 @@
 </div>
 
 <div align="center">
- ѕтαη or ᥴ᥅ꪮꪀꪖ </br>
-
-(im thinking things i shouldnt, but your the only one who can help me pull through this pain.)
+ </br>
 
 
-im a little on the unstable side atm ;3 
 
 
 nako tysm! my lord and savior 
@@ -20,4 +17,4 @@ nako tysm! my lord and savior
  
 (ill make u a rentry someday promise)nako
 
-<img src="blob:chrome-untrusted://media-app/5e264bc5-3c4b-4d9d-81ba-13a532d8f079" alt=""/>![image](https://github.com/user-attachments/assets/726439f1-d27e-4247-9384-b1fa359c14d9)
+<img src="https://i.pinimg.com/236x/44/2f/f3/442ff35f1fca62f3c1fdb02eccd51937.jpg" alt="Authentic DesignWith attention to detail, this plush toy accurately captures the appearance each character from Hazbin-Hotel, According to hazbin-hotel design. Suitable for ScenesCars, sofas, beds, offices, coffee shops, bookstores, hotels, clubs, parties, etc;, can also be given to friends and fans; When you are in a bad mood, you can hit and pressure the plush pillow; The cute animal pillow will help you reduce the pressure of work. Multi-Purpose Occasion: This Hazbin-Hotel plush toy is a grea"/>![image](https://github.com/user-attachments/assets/284d1617-a74a-43ea-acdd-911468e77c55)
