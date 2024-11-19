@@ -1,4 +1,4 @@
-
+if you see me on pt that means im ungrounded (or secretly on at school) its very unlikely thoigh
 </div>
 
 <div align="center">
