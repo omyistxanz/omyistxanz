@@ -17,4 +17,4 @@ nako tysm! my lord and savior
  
 (ill make u a rentry someday promise)nako
 
-<img src="blob:chrome-untrusted://media-app/9b3c5237-9ed5-4107-8367-97941dc191f7" alt="us.jpg"/>![image](https://github.com/user-attachments/assets/78ba6c4e-0b05-42f2-935d-1319ca4c5d59)
+<img src="blob:chrome-untrusted://media-app/9b3c5237-9ed5-4107-8367-97941dc191f7" alt=""/>![image](https://github.com/user-attachments/assets/78ba6c4e-0b05-42f2-935d-1319ca4c5d59)
