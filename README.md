@@ -1,4 +1,4 @@
-                                                     ( a being made of guilt.)
+                                                       a being made of guilt.
                                                              im ꜱᴛᴀɴ!
                                                           ( he/him prns)
                                                              
